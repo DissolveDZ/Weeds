@@ -9,8 +9,8 @@
 I do NOT own any of the music/sounds used, nor am I profiting from this project <br> 
 The music is called "Return Trip" and is an OST for the nintendo "engine" called Smile Basic.
 ![image](https://github.com/DissolveDZ/Weeds/assets/68782699/2b31e0fc-390e-4781-a5ad-ec983f2fc8e2)
+![image](https://github.com/DissolveDZ/Weeds/assets/68782699/eef0bb43-5453-4de1-863c-d314b98947a2)
 
-![image](https://github.com/DissolveDZ/Weeds/assets/68782699/66ff69f9-ced5-4cb1-ab77-9ba8b74d099b)
 ![image](https://github.com/DissolveDZ/Weeds/assets/68782699/dd31aa52-235e-4d5e-a9ab-c1e75f89407a)
 
 ![image](https://github.com/DissolveDZ/Weeds/assets/68782699/3e292e9d-0b70-4f72-9139-ee3dd26d901e)
